@@ -1,0 +1,1 @@
+N'importe qui peut contribuer au Wiki de Volubilis [ici](http://google.com). Un badge unique sera offert pour tout contributeur. (prochainement)
